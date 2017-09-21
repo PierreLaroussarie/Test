@@ -10,3 +10,7 @@ Elle en était tombé amoureuse sans même le voir.
 
 La jeune femme était jeune , elle écoutait attentivement le doux son qui lui arrivé aux oreilles
 elle s'immaginait l'Homme qui pouvait jouer de cet instrument...
+
+
+
+Pierre Laroussarie
